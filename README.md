@@ -1,1 +1,0 @@
-# mindimprove.github.io
